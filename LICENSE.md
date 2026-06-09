@@ -1,4 +1,4 @@
-
+rivals Script exclusive offers the most advanced rivals Script, with auto-upgrade and unlimited stamina. Perfect for dominating any match.
 
 
 
